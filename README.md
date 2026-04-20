@@ -18,7 +18,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> يا حبيبتي قلبي معاكي مرتاح
+> في عيونك بنسى كل الجراح
+> نور حبك في طريقي لاح
+> روحي بتناديك في المساء والصباح
 > ...
 
 📄 **[View Full Lyrics →](./lyrics.txt)**
